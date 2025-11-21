@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Don't need it proven
+Don't wanna listen
+Don't need a tour of the pieces I'm missing
